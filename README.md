@@ -65,3 +65,10 @@ Write down the same stream name you have used in Step 2 and press Play button. Y
 
 
 Congratulations, that's all. If you have any question or need to get support (private or enterprise) please contact us antmedia.io.
+
+### Support:
+
+If you want the good work to continue please support us on
+
+* [PAYPAL](https://www.paypal.me/ishandutta2007)
+* [BITCOIN ADDRESS: 3LZazKXG18Hxa3LLNAeKYZNtLzCxpv1LyD](https://www.coinbase.com/join/5a8e4a045b02c403bc3a9c0c)
